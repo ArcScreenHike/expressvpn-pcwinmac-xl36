@@ -1,4 +1,4 @@
-# 
+# Personnalisé ExpressVPN extensions pour Mac OS | Mis à jour ExpressVPN extensions pour PC Windows. Avec réseau mondial de serveurs et suivi de la bande passante — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
